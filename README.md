@@ -1,1 +1,1 @@
-Just some random stuff produced by Wenlong
+Just some random stuff
